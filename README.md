@@ -14,3 +14,5 @@ Quickly transfer and share recordings
 
 Download and try now, record every moment easily!
 
+
+https://ruasoftware.blogspot.com/
